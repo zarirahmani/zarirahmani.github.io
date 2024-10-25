@@ -1,3 +1,3 @@
-## A linguist
+## Linguist
 ### Education
 #### Work Experience 
